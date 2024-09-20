@@ -1,1 +1,4 @@
-# Matheus-Sabino
+# Matheus-Sabno
+me chamo matheus sabino tenho 15 anos , moro em meridiano, estuda na escola Donato Marcelo Balbo sou uma pessoa geralmente bem tranquila que prefere ficar mais na minha do que geralmente socializar , tenho 1,72 de altura e gosto de jogos o meu favorito seria o League of legens ou como geralmente acaba sendo chamado lol , minha atividade favorita que gosto de fazer no dia dia e ficar em casa e assistir filmes e jogar em call com amigos no tempo livre , minhas materias favoritas seriam portugues , matematica , ingles e um pouco de educação, minhas comidas favoritas são macarrão , brocolis , frango, estrogonofe , e coxinha de brigadeiro, sou uma pessoa muuto carente por que gosto muito de abraços e de atenção e sempre que alguem precisa de mim eu sempre vou tentar ajudar ela ao maximo independente da situação em que a pessoa esteja envolvida a menos com coias ruins tipo roubo e trafico kaka   
+
+![](https://i.giphy.com/media/v1.Y2lkPTc5MGI3NjExZ3Zlem5tc2NpeDg3d3JkdDFmczJ3M2M2NjJ1cnF5NXYyZmx4OTRtMSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/tHIRLHtNwxpjIFqPdV/giphy.gif)
